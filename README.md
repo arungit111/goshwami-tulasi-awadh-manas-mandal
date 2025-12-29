@@ -1,2 +1,2 @@
-# goshwami-tulasi-awadh-manas-mandal
+# AwadhManasMandal.com
 Ramayan group
